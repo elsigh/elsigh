@@ -1,1 +1,1 @@
-## ▲ ▲ ▲ ▲ ▲ ▲ ▲ ▲ ▲ rules everything around me
+## ▲ rules everything around me
